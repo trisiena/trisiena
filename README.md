@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alvin, go by the name trisiena on this platform.
-- 👀 I’m interested in data, politic, and life in general.
+- 👀 I’m interested in data, politics, and life in general.
 - 🌱 I’m currently learning Python! Been working myself out to be a DA someday!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: alvintrisiena@gmail.com on email or /craterspeak2001 on twitter/X!
